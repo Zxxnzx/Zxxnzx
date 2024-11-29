@@ -5,3 +5,5 @@
 - 📫 How to reach me botahhdog12@outlook.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im cool
+- 🤣 im a funny guy
+- and im 17
