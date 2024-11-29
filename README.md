@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Zxxnzx
+- 👀 I’m interested in cats
+- 🌱 I’m currently learning math
+- 💞️ I’m looking to collaborate on air
+- 📫 How to reach me botahhdog12@outlook.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im cool
